@@ -1,1 +1,1 @@
-I am Akshay Sinha, a 21 year old, indie AI developer from Noida currently building cool stuffs.
+I am Akshay Sinha, a 22 year old, indie AI developer from Noida currently building cool stuffs.
